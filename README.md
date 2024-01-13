@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @grantace2001
 - 👀 I’m interested in ... Mobile App / Web Development
-- 🌱 I’m currently learning ... Mobile App / Web Development (Want to evetually learn how to programs for live TV).
+- 🌱 I’m currently learning ... Mobile App / Web Development (Want to evetually learn how to make software for live TV).
 - 💞️ I’m looking to collaborate on ... Mobile App Development
 - 📫 How to reach me ... grantace01@gmail.com and/or 484-302-1666, (*text only, I won't answer if you call me).
 - 😄 Pronouns: ... He/Him
